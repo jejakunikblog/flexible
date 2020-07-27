@@ -1,0 +1,2 @@
+# flexible
+CCS KOMPIFLEXBLE JEJAKUNIK
